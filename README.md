@@ -1,6 +1,5 @@
 - 👋 Hi, I’m arniish mahendar
 - 👀 I’m interested in learning new stuff.
-- 🌱 I’m currently studying b.tech computer science.
 - 💞️ I’m looking to collaborate on an new projects.
 - 📫 reach me at arniish007@gmail.com
 
